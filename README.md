@@ -1,1 +1,3 @@
-# Szofvter-min-s-gbizt
+Zh-gyakorlati rész
+Boda Levente
+
