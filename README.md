@@ -1,0 +1,1 @@
+# Szofvter-min-s-gbizt
